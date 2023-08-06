@@ -1,5 +1,5 @@
 - 👋 OLÁ, MEU NOME É MATHEUS GLORIA
-- 📫MEUS LINK - linkedin.com/in/matheus-felipe-b56716274/
+- 📫MEUS LINK - www.linkedin.com/in/matheus-felipe-b56716274/
 - 📫 MEU EMAIL PARA CONTATO MATHEUS--FELIPE1@HOTMAIL.COM..
 - 👀 MEU INTERESSE GIRA EM TRONO DE TECNOLOGIA E INDÚSTRIA 4.0 ...
 
